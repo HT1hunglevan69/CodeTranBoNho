@@ -1,2 +1,1 @@
-# CodeTranBoNho
-Xin chao
+tạo cho vui :)
